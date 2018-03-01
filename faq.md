@@ -15,9 +15,9 @@ Le  mercredi 7 mars à Montpellier, de 9h30 à 17h. RDV place de la Comédie, su
 
 ### Je me sens pas au niveau…
 Rassure-toi, nous non plus :-) 
-Chacun apporte une pière à l’édifice quelque soit son niveau et son aisance.
+Chacun apporte une pierre à l’édifice quelque soit son niveau et son aisance.
 On prendra soin de t’accompagner pour que tu puisses explorer confortablement. 
-En improvisation, on ne cherche pas tant le beau ou le parfait, que le spontané, et la connection avec les autres.
+En improvisation, on ne cherche pas tant le beau ou le parfait, que le spontané, et la connexion avec les autres.
 
 ### On sera combien ?
 Au moins 4, maximum 15. 
